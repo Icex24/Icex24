@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Icex24
+- 👀 I’m interested in making games
+- 🌱 I’m currently learning game development
+- 💞️ I’m looking to collaborate on Instagram
+- 📫 U can reach me Here
